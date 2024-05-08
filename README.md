@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Zeus
-- 👀 I’m interested in sports and new learning
+- 👀 I’m interested in girls, just kidding. I'm Interested in sports, adventure and computer games.
 - 🌱 I’m currently learning how to code using Java and will soon move up to JavaScript
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: IG:steezyeus
